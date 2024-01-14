@@ -1,4 +1,5 @@
 Hola te invito a entrar a mi canal , apoyame con un like gracias bro , soy kronoz👺
+@kronoz800
 
 <!---
 Eduardo6891982/Eduardo6891982 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
